@@ -1,3 +1,3 @@
 # Editor Style Guide
 
-Coming soon!
+Branding Assests to be added soon!
